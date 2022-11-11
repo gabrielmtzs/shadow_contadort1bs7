@@ -1,1 +1,0 @@
-# shadow_contadort1bs7
